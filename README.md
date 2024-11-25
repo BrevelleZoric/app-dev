@@ -12,7 +12,7 @@ This movie is epic! It has all the Marvel heroes coming together to fight Thanos
 
 ---
 
-## 2. Transformers: The Last Knight**
+## 2. Transformers: The Last Knight
 Release Date: June 21, 2017  
 
 This one has awesome robots, crazy battles, and a mix of history and sci-fi. The effects are top-notch, and it’s just fun to watch.
